@@ -40,7 +40,7 @@
  <br><br>
 
 
-<a href="https://frozendebt.atabook.org/"> atabook</a> ✦ <a href="https://mutinyduo.crd.co">carrd</a> 
+<a href="https://frozendebt.atabook.org/"> atabook</a> ✦ <a href="https://3utinyduo.crd.co">carrd</a> 
 
  <img src="https://github.com/user-attachments/assets/85ddaa90-46f0-41dd-b554-4bb163900b25" width="950" height="auto" ></a>
 
