@@ -1,2 +1,3 @@
-nonverbal unless close friends
-c+h ok im lonely
+always nonverbal
+ • c+h ok im lonely
+
