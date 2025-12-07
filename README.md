@@ -22,7 +22,7 @@
 
     
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=78A3C3&plastic&label=⠀SOUL+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀SOUL+;⠀"></img></p>
     ${\textsf{\color{red} always free to c+h ⸝ int unless alias said otherwise .}}$ <br>
          ${\textsf{\color{purple}interbinary ⸝ bisexual}}$ <br>
         
@@ -30,7 +30,7 @@
  <br>
 
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=purple&plastic&label=⠀MACE+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀MACE+;⠀"></img></p>
  <br>
  
 <p align="center">
