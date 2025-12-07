@@ -6,7 +6,8 @@
 <div align="center">
    
  
-<img width="950" height="auto" alt="1000057047" src="https://github.com/user-attachments/assets/b2d00194-c2b4-4ebd-b44c-fd55bcfd29cc" />
+![1000064469](https://github.com/user-attachments/assets/d39344dc-94d9-4d8e-90db-3336ccbc7b78)
+
 
 <img src="https://github.com/user-attachments/assets/ed953c9e-5a37-477a-bbba-29d50c8feb7f"
  align="right" width="55%"></a>
@@ -18,7 +19,7 @@
 
            
 <p align="center">
-   ${\textsf{\color{purple} ( ✿◠ᴗ◠)}}$<br>
+   ${\textsf{\color{purple} better view on pc( ✿◠ᴗ◠)}}$<br>
 
     
 <p align="center"> 
@@ -40,6 +41,7 @@
  <br><br>
 
 
-<a href="https://frozendebt.atabook.org/"> atabook</a> ✦ <a href="https://3utinyduo.carrd.co">carrd</a> 
+<a href="https://frozendebt.atabook.org/"> 1</a> ✦ <a href="https://3utinyduo.carrd.co">2</a>
+✦ <a  href="https://frozendebt.atabook.org/">3</a> ✦ <a href="https://colormytree.me/2025/01JE91HB4TXBMA8BK7H3YW46B4">4</a>
 
- <img src="https://github.com/user-attachments/assets/85ddaa90-46f0-41dd-b554-4bb163900b25" width="950" height="auto" ></a>
+![1000064470](https://github.com/user-attachments/assets/c08f34f1-0c76-4958-9fcb-2b4b438f7c7e)
