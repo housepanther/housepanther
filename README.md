@@ -18,7 +18,7 @@
 
            
 <p align="center">
-   ${\textsf{\color{purple} best viewed on pc mode}}$<br>
+   ${\textsf{\color{purple} ( ✿◠ᴗ◠)}}$<br>
 
     
 <p align="center"> 
