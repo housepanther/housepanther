@@ -41,7 +41,7 @@
  <br><br>
 
 
-<a href="https://en.pronouns.page/@n1linstance"> 1</a> ✦ <a href="https://3utinyduo.carrd.co">2</a>
-✦ <a  href="https://frozendebt.atabook.org/">3</a> ✦ <a href="https://colormytree.me/2025/01JE91HB4TXBMA8BK7H3YW46B4">4</a>
+<a href="https://en.pronouns.page/@n1linstance"> prns</a> ✦ <a href="https://3utinyduo.carrd.co">crd</a>
+✦ <a  href="https://frozendebt.atabook.org/">ata</a> ✦ <a href="https://colormytree.me/2025/01JE91HB4TXBMA8BK7H3YW46B4">tree</a>
 
 ![1000064470](https://github.com/user-attachments/assets/c08f34f1-0c76-4958-9fcb-2b4b438f7c7e)
