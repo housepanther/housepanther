@@ -1,9 +1,6 @@
-
-    
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀QUAG+;⠀"
-
-
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀QUAG+;⠀"></img></p>
+ <br>
 
 
   ![1000008979](https://github.com/user-attachments/assets/7f779481-b269-46b2-b0f9-bbd9a23edc95)
