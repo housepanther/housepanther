@@ -15,5 +15,5 @@
 
 <p align="center"> 
   <p align="center">
-<a href="https://en.pronouns.page/@n1linstance"> prns</a> ✦ <a href="https://3utinyduo.carrd.co">crd</a>
+<a href="https://en.pronouns.page/@DOONS"> prns</a> ✦ <a href="https://3utinyduo.carrd.co">crd</a>
 ✦ <a  href="https://frozendebt.atabook.org/">ata</a> 
