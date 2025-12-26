@@ -16,7 +16,7 @@
   <p align="center">
 <a 
 
-art is by @monotoxist on X
+`art is by @monotoxist on X`
 
 <br>
 
