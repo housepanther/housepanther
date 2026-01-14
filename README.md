@@ -1,5 +1,5 @@
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀GAMBIT+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀NIL+;⠀"></img></p>
  <br>
 
 <p align="center"> 
@@ -9,14 +9,14 @@
 
 
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀CRUCIBLE+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=A865C9&plastic&label=⠀NIL+;⠀"></img></p>
  <br>
 
 <p align="center"> 
   <p align="center">
 <a 
 
-`art by @monotoxist on X`
+`art by @HoardingHavoc on pin`
 
 <br>
 
