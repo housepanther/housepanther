@@ -5,7 +5,7 @@
 
 
 <p align="center"> 
-  <p align="center"><img src="https://github.com/user-attachments/assets/edd2a228-b643-4278-a24b-13510990c8e4" />
+  <p align="center"><img src="https://github.com/user-attachments/assets/3fee388d-e7f4-4493-8a35-830005cc778a"
 
 <br>
 
@@ -18,7 +18,7 @@
   <p align="center">
 <a 
 
-`art by @insectlover001 on twt`
+`art by skteshot on Pin`
 
 <br>
 
