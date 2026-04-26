@@ -5,20 +5,21 @@
 
 
 <p align="center"> 
-  <p align="center"><img src="https://github.com/user-attachments/assets/3fee388d-e7f4-4493-8a35-830005cc778a"
+  <p align="center"><img src="https://github.com/user-attachments/assets/dfa2d4e1-d2a7-47d0-93ce-6ce6c791c283" />
+"
 
 <br>
 
 
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=red&plastic&label=⠀NIL+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=green&plastic&label=⠀NULL+;⠀"></img></p>
  <br>
 
 <p align="center"> 
   <p align="center">
 <a 
 
-`art by skteshot on Pin`
+`arts by captainrujo on X`
 
 <br>
 
