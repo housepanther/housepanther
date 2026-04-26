@@ -7,6 +7,7 @@
 <p align="center"> 
   <p align="center"><img src="https://github.com/user-attachments/assets/dfa2d4e1-d2a7-47d0-93ce-6ce6c791c283" />
 "
+read rentry and prns before interacting! some messages on ata would be nice<3
 
 <br>
 
