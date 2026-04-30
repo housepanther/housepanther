@@ -5,7 +5,7 @@
 
 
 <p align="center"> 
-  <p align="center"><img src="https://github.com/user-attachments/assets/dfa2d4e1-d2a7-47d0-93ce-6ce6c791c283" />
+  <p align="center"><img src="https://github.com/user-attachments/assets/7bed4518-f78f-4f8b-ad84-10b9dff3b6d7" />
   "
     
    $\color{#728749}{\textsf{"read rentry and pronouns.page before INT }}$ 
@@ -17,14 +17,14 @@
     
 $\color{#728749}{\textsf{— ✧ — }}$
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=green&plastic&label=⠀NULL+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=green&plastic&label=⠀PLAYERS+;⠀"></img></p>
  <br>
 
 <p align="center"> 
   <p align="center">
 <a 
 
-`arts by captainrujo on X`
+`arts by _kamko on X`
 
 <br>
 
