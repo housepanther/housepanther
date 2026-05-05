@@ -23,7 +23,7 @@ $\color{#728749}{\textsf{— ✧ — }}$
   <p align="center">
 <a 
 
-`arts by @watermlem (Pea_404) on X`
+`cred @watermlem on X`
 
 <br>
 
