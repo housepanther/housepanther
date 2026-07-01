@@ -14,6 +14,4 @@ Im always NV or S-NV unless you're talking to us specifically. we dont like cudd
 
 we only follow friends, if youre unfollowed or unfriended on pt its probably bc We barely talk to each other, i prefer keeping my friendlist minimum
 
-c+h is greatly appreciated if we r alone, I lalalove cuddling!ok!
-
-more info on our alt, check out [solan](https://github.com/solanaceaee)
+c+h is greatly appreciated if we r alone, I lalalove cuddling!ok! very cud comfort im always lonely so feel free to hmu
