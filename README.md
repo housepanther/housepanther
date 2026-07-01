@@ -16,4 +16,4 @@ we only follow friends, if youre unfollowed or unfriended on pt its probably bc 
 
 c+h is greatly appreciated if we r alone, I lalalove cuddling!ok!
 
-more info on our alt 
+more info on our alt, check out [solan](https://github.com/solanaceaee)
