@@ -8,7 +8,7 @@
 Azure ou Sean
 、 xe ) hym
 
-hihi we are usually known as "bunny" by 🐕 and certain people, Or as [botanyritual](tiktok.com/@botanyritual)
+hihi we are usually known as "bunny" by 🐕 and certain people, Or as @botanyritual on TT
 
 Im always NV or S-NV unless you're talking to us specifically. we dont like cuddling in crowd of people we dont know, unless youre oomfs (or oomf in law) thats ok ♡
 
