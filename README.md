@@ -8,7 +8,7 @@
 Azure ou Sean
 、 xe ) hym
 
-hihi we are usually known as "bunny" by 🐕 and certain people
+hihi we are usually known as "bunny" by 🐕 and certain people (those certain people knows who im talking about)
 
 Im always NV or S-NV unless you're talking to us specifically. we dont like cuddling in crowd of people we dont know, unless youre oomfs (or oomf in law) thats ok ♡
 
