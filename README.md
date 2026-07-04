@@ -1,8 +1,9 @@
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=red&plastic&label=⠀SWEETSPARK+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=red&plastic&label=⠀PANTHERS+;⠀"></img></p>
  <br>
 
-![1000093083](https://github.com/user-attachments/assets/a8c99394-1498-41b7-b038-ff1be06ba260)
+<img width="736" height="414" alt="3554" src="https://github.com/user-attachments/assets/95525714-7286-421a-911d-b47d38bef885" />
+
 
 
 Azure ou Sean
@@ -18,3 +19,6 @@ Im always NV or S-NV unless you're talking to us specifically. we dont like cudd
 we only follow friends, if youre unfollowed or unfriended on pt its probably bc We barely talk to each other, i prefer keeping my friendlist minimum
 
 c+h is greatly appreciated if we r alone, I lalalove cuddling!ok! very cud comfort im always lonely so feel free to hmu
+
+<img width="736" height="736" alt="3553" src="https://github.com/user-attachments/assets/b0bff011-6a88-4154-b9ef-2cfc09663e5a" />
+
