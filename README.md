@@ -9,7 +9,7 @@ Azure ou Sean
 、 xe ) hym
 
 PT azure & pretty pony♡
-[๑](https://github.com/title-town) [๒]()
+[๑](https://github.com/title-town) [๒](https://github.com/pt-players)
 
 hihi we are usually known as "bunny" by 🐕 and certain people, Or as @botanyritual on TT
 
