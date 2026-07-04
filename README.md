@@ -11,7 +11,7 @@ Azure ou Sean
 PT azure & pretty pony♡
 [๑](https://github.com/title-town) [๒](https://github.com/pt-players)
 
-hihi we are usually known as "bunny" by 🐕 and certain people, Or as @botanyritual on TT
+hihi we are the black cat of ponytown thats we!, Or as @botanyritual on TT
 
 Im always NV or S-NV unless you're talking to us specifically. we dont like cuddling in crowd of people we dont know, unless youre oomfs (or oomf in law) thats ok ♡
 
