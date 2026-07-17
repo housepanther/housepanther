@@ -9,8 +9,8 @@
 Azure ou Sean
 、 xe ) hym
 
-PT azure & pretty pony♡
-[๑](https://github.com/title-town) [๒](https://github.com/pt-players)
+PT azure & pretty pony♡ & (ily jo 4 the message♡)
+[๑](https://github.com/title-town) [๒](https://github.com/pt-players) [๓](https://github.com/compliment-town)
 
 hihi we are the black cat of ponytown thats we!, Or as @botanyritual on TT
 
