@@ -20,5 +20,7 @@ we only follow friends, if youre unfollowed or unfriended on pt its probably bc 
 
 c+h is greatly appreciated if we r alone, I lalalove cuddling!ok! very cud comfort im always lonely so feel free to hmu
 
-<img width="736" height="736" alt="3553" src="https://github.com/user-attachments/assets/b0bff011-6a88-4154-b9ef-2cfc09663e5a" />
+we cosplay certain charecters from problematic fandoms doesnt mean we associate ourselve with them or support said creators
+
+width="736" height="736" alt="3553" src="https://github.com/user-attachments/assets/b0bff011-6a88-4154-b9ef-2cfc09663e5a" />
 
