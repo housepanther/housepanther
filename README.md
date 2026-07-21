@@ -20,5 +20,7 @@ we only follow friends, if youre unfollowed or unfriended on pt its probably bc 
 
 c+h is greatly appreciated if we r alone, I lalalove cuddling!ok! very cud comfort im always lonely so feel free to hmu
 
+do not colorpick our ponies or copy our ponies entirely thankyou<)
+
 we cosplay certain charecters from problematic fandoms doesnt mean we associate ourselve with them or support said creators
 
